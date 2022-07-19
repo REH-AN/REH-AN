@@ -1,13 +1,28 @@
+
+
 ![image](https://user-images.githubusercontent.com/90412626/174774639-a26d538e-c1af-4c1d-85be-c77bafb6424c.png)
 <br>
-https://i.pinimg.com/originals/f3/20/c4/f320c4df97fe96b74444db96c39d8ed6.gif
-<br>
+<hr>
 <br>
 
+
+
+![zyzz](https://user-images.githubusercontent.com/90412626/179731223-b7a310e5-6718-4bd8-9d52-d0ce0c79aefc.gif)
+
+
+
+
+<br>
+<hr>
 CONTACT ME ON 
 <br>
+
 <br>
 <a href="https://www.instagram.com/_j_rehan/" target="_blank">Instagram</a>
 <br>
+<hr>
 <br>
 <a href="https://www.facebook.com/rehan.ksea" target="_blank">Facebook</a>
+<br>
+<hr>
+<br>
